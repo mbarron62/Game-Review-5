@@ -1,1 +1,7 @@
 # Game-Review-5
+
+Title - Spider Man 2
+
+Summary - In this sequel to 2002's Spider-Man the movie game, Peter Parker/Spider-Man now must face a mad scientist known as Doc Ock and struggle with the fact that Mary Jane Watson is engaged to John Jameson. Series of other problems occur such as a corrupt evil Hollywood special effects star named Quentin Beck/Mysterio plans to prove Spider-Man is a false and take over New York City; the dazzling vigilante Black Cat who aides Spider-Man with his personal problems and against the evil returning Shocker, and the usual duties of being a hero: protecting the citizens from danger.
+
+Final Thoughts - When I finished this game at 2 am this morning, I kept playing for two more hours. Just for fun. I was into it; addicted. I wanted to beat old times in races, pull off cool style moves, and put to use my counter moves and web slinging attacks that I overlooked before. This is no longer just a simple arcade game. It's more than that now; it's a skill-based game where you actually need structures around to stick your web (instead of just air like before), where counters and Spidey Sense are useful, and where you're constantly upgrading your abilities (which is where you feel that Tony Hawk-like addiction setting in). Spider-Man 2 may have its faults, but its collective strengths are greater than its combined faults. It's the best Super-hero game I've played.
